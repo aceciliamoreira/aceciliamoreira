@@ -1,5 +1,5 @@
 ## BEM VIDAS AO MEU DAILY 🤍✨
-### Olá eu sou a Ana Cecilia
+### Olá eu sou a Ana Cecilia!
 ### Sobre mim:
 #### - Cursando o 1 ano do Ensino medio.
 #### - Aprendendo HTML, CSS e jAVAsCRIPT.
