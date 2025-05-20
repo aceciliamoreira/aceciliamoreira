@@ -1,4 +1,4 @@
-## BEM VIDAS AO MEU DAILY
+## BEM VIDAS AO MEU DAILY 🤍✨
 
 <!--
 
